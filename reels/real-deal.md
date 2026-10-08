@@ -13,7 +13,7 @@
 - サブスクリンク：https://linkco.re/rXq5QxGD
 
 ## 【要確認】
-- 明日公開されるのは何か（MV？ ほかの映像？）
+- ~~公開されるもの~~ → Real deal のMVで確定（10/7 確認済み）
 - 映像のクレジット（監督・撮影・編集など）→ YouTube概要欄から転記する
 - RESi・Cohsho Kunihira のInstagramアカウント名（タグ付け用）
 
@@ -37,7 +37,7 @@ Real deal (feat. RESi) 🎬
 ## 案B：ストーリー型
 
 アルバム『Kenobi's Awaken』から
-「Real deal (feat. RESi)」の映像、本日18:30公開。
+「Real deal (feat. RESi)」のMV、本日18:30公開。
 
 MCC802のチームメイト RESi と、
 盟友 Cohsho Kunihira のビートで。
